@@ -14,3 +14,4 @@ Basic DNI criteria, pro-shippers, problematic people, etc.
 Im a minor, i have very very low energy and enthusiasm at times
 
 unless youre my friend. I have ADHD and PTSD symptons.
+Insta is @ersuiyance !feel free to follow and dm ^^
