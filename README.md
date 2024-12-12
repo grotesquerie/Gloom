@@ -1,7 +1,7 @@
 # 𝓓 
 ![](https://files.catbox.moe/daq9ny.png)
 
-◟ ͜ ᐩ ་། ⠀૮๑ˊᯅˋ๑ა 𝓓raven or 𝓟 ale 𓆪⠀He / vamp only ◞︶ᐩ◡ KzScr shipper
+◟ ͜ ᐩ ་། ⠀૮๑ˊᯅˋ๑ა 𝓓raven or 𝓟 ale 𓆪⠀He / she only ◞︶ᐩ◡ KzScr shipper
 
 Always on hyv area 　 ྀི◟　 ͜͜ ⠀⠀sngl . . Minor ! ୨ৎ‿ ◜Please IWEC
 
